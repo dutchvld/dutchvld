@@ -1,6 +1,7 @@
 ## ♡   ⊹  WELCOME   ౨ৎ˚₊ 
 
-<!--![image](https://github.com/user-attachments/assets/ae619a76-463d-470c-aad6-5ac4c57663a6)
+![image](https://github.com/user-attachments/assets/b1554192-6629-4b5d-b475-2b22901e0e82)
+
 
 **dutchvld/dutchvld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
