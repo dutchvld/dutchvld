@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/22c70bd4-5412-49e0-8e89-ad5bd60ca7a5)
+![image](https://github.com/user-attachments/assets/31a13fb3-5201-437e-8a08-27b16479d934)
+
 
 
 ༄ No replies = Busy/Afk !! I am not ignoring you. 
@@ -8,3 +9,7 @@
 ༄ I am a bit bad at remembering, so I apologize about that.  
       
   𐔌   . MORE INFO IN LINKS !!
+  
+
+
+
