@@ -6,7 +6,7 @@
 
 ༄ If you have any questions, do not be afraid to ask.
  
-༄ I am a bit bad at remembering, so I apologize about that.  
+༄ I am a bit bad at remembering, so I apologize if I forget important details.  
 
 ༄ Diagnosed with ADHD, Bipolar, and Borderline Personality Disorder
       
