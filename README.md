@@ -8,7 +8,7 @@
  
 ༄ I am a bit bad at remembering, so I apologize if I forget important details.  
       
-  𐔌   . MORE INFO IN LINKS !!
+  𐔌   . MORE INFO IN LINK !!
   
 
 
