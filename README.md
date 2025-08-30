@@ -4,6 +4,8 @@
 
 ༄ No replies = Busy/Afk !! I am not ignoring you. 
 
+༄ Discord : dutchvld
+
 ༄ If you have any questions, do not be afraid to ask.
  
 ༄ I am a bit bad at remembering, so I apologize if I forget important details.  
