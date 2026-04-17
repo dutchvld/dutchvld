@@ -2,7 +2,7 @@
 
 
 
-༄ No replies = Busy/Afk !! I am not ignoring you. 
+༄ No replies = Busy/Afk !! I am not ignoring you. c+h allowed
 
 ༄ Discord : dutchvld
 
